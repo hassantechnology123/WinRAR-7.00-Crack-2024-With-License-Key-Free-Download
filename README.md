@@ -4,4 +4,6 @@ WinRAR Crack is a highly effective file extractor and document archive for both 
 
 WinRAR will encrypt your files while working with a fantastic 128-bit AES encryption algorithm to ensure it is tougher for crackers, and hackers, to get into your important document and decode them which could possibly be due to risk to your own security but do not bother about this encryption algorithm you be certain the files hold with a secure encryption algorithm. Winrar Key additionally can be obtained for additional systems with all the exact abilities. Below you are able to find more options that come with the program.
 
+[![smile.gif](https://i.postimg.cc/W1wzjBYt/smile.gif)](https://postimg.cc/CRdSsQgV)
+
 **<a href="https://free4tools.com/winrar-crack/">Download Now</a>**
